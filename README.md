@@ -42,6 +42,6 @@ I am open to collaborations with Fintech startups, Prop Firms, and Quantitative 
 
 Professional Inquiry: [Christopherchidubem64@gmail.com]
 
-LinkedIn: [Christopher Chidubem]
+LinkedIn: [https://www.linkedin.com/in/christopher-chidubem-33089b39b?utm_source=share_via&utm_content=profile&utm_medium=member_ios]
 
 Location: Remote / International
